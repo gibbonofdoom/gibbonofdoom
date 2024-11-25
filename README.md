@@ -1,4 +1,4 @@
-🐦@gibbonofdoom
+💙 @gibbonofdoom.bsky.social
 
 Tech Anim in Games - Maya/Pipeline/Python/Game Tech
 
